@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @coderxj2k<br>👀 I’m interested in ... gaming and coding<br>🌱 I’m currently learning ... game dev<br>💞️ I’m looking to collaborate on ... game devlopment and AI devlopment <br>📫 How to reach me ... jeel_rupapara_07 on insta <br>😄 Pronouns: ... jeel / j2k<br>⚡ Fun fact: ...i am youtuber with 100k famliy<br>
+👋 Hi, I’m @coderxj2k<br>👀 I’m interested in ... gaming and coding<br>🌱 I’m currently learning ... game dev<br>💞️ I’m looking to collaborate on ... game devlopment and AI devlopment <br>📫 How to reach me ... jeel_rupapara_07 on insta <br>😄 Pronouns: ... he/him<br>
 
 
 ## 🌐 Socials:
